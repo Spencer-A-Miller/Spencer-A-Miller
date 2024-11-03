@@ -1,4 +1,4 @@
 # Spencer Miller
 
-**`Artificial Intelligence Engineering Student`**
+**`Computer Science Student`**
 LinkedIn: https://www.linkedin.com/in/spencer-miller-33a178b6/
